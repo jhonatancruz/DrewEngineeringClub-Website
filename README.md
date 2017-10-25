@@ -1,1 +1,1 @@
-# This is where the Drew Engineering and HackDrew will live
+# This is where the Drew Engineering Club and HackDrew will live
